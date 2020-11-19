@@ -14,4 +14,10 @@
 - Unfair- injusticia
 - Wisdom- sabiduría
 - Whichever way- De cualquier manera
+- Blue collar jobs- is a working class person who performs manual labor
+- Blue collar jobs- is a person who performs professional, desk, managerial,
+
+
+#### 18 nov 2020
+
 - 
