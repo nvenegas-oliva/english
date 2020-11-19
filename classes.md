@@ -27,3 +27,19 @@
 - sci-fi- ciencia ficción
 - evolved- evolucionado
 - The library is where the knowledge is- correct
+
+
+#### 19 nov 2020 (1)
+
+- day after tomorrow- pasado mañana
+- ginger- jengibre
+- invasive- invasivo
+- what are u thinking of cooking- use of when end ing
+- Tenacious- tenaz
+- punish- castigar
+- refusal- rechazo
+- upset- molestar
+- persuade- persuadir
+- polite- educado
+- manly- varonil
+- take a rain check (on sth)- used to tell someone that you cannot accept an invitation now, but would like to do so at a later time: Mind if I take a rain check on that drink? I have to work late tonight.
