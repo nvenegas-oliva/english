@@ -20,4 +20,8 @@
 
 #### 18 nov 2020
 
-- 
+- Tall- alto
+- Height- altura
+- lack- carencia
+- cutting him off- cortándolo
+- sci-fi- ciencia ficción
