@@ -25,3 +25,5 @@
 - lack- carencia
 - cutting him off- cortándolo
 - sci-fi- ciencia ficción
+- evolved- evolucionado
+- The library is where the knowledge is- correct
