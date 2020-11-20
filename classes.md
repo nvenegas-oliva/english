@@ -43,3 +43,9 @@
 - polite- educado
 - manly- varonil
 - take a rain check (on sth)- used to tell someone that you cannot accept an invitation now, but would like to do so at a later time: Mind if I take a rain check on that drink? I have to work late tonight.
+
+
+#### 19 nov 2020 (2)
+
+- scrap- desechar
+- sneezing- esturnudar
