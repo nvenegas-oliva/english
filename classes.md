@@ -49,3 +49,20 @@
 
 - scrap- desechar
 - sneezing- esturnudar
+
+#### 25 nov 2020
+
+- Nauseous-the feeling of vomiting
+- Spice up your life
+- There is an elephant in the room
+
+#### 26 nov 2020 (1)
+
+- Elephant in the room
+- Hedging language- cautious language or vague language
+- Foreigner- Foreigner
+- Embarrassed- Desconcertado
+- Soliloquize- Soliloquiar, hablar solito.
+- Golden voice- Voz bonita
+- Silver tongue- eloquent, fluent, persuasive
+- fur- piel para animales
