@@ -66,3 +66,13 @@
 - Golden voice- Voz bonita
 - Silver tongue- eloquent, fluent, persuasive
 - fur- piel para animales
+
+
+#### 26 nov 2020 (2)
+
+- tipsy- slightly drunk.
+- humble- humilde.
+- don't mind me- no me hagas caso.
+- frugal- ahorrativo o económico con respecto al dinero o la comida.
+- pompous- affectedly and irritatingly grand, solemn, or self-important.
+- afectada e irritantemente grandilocuente, solemne o engreído.
