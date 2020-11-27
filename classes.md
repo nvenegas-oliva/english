@@ -76,3 +76,15 @@
 - frugal- ahorrativo o económico con respecto al dinero o la comida.
 - pompous- affectedly and irritatingly grand, solemn, or self-important.
 - afectada e irritantemente grandilocuente, solemne o engreído.
+
+
+#### 27 nov 2020
+- It depends on that- use on (preposition)
+- stingy- no dispuesto a dar o gastar; poco generoso.
+- Looking at
+- Looking for
+- We are going on holiday next week.- on
+- On weekends- every weekend
+- At weekends- every weekend
+- At the weekend- just one weekend
+- In, at, on, by, between, behind, since.- review.
