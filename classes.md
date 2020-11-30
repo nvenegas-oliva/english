@@ -88,3 +88,18 @@
 - At weekends- every weekend
 - At the weekend- just one weekend
 - In, at, on, by, between, behind, since.- review.
+
+
+#### 29 nov 2020
+- Public transportation- on
+- Private transportation- in
+
+
+#### 30 nov 2020 (1)
+- stingy
+- breathtaking- asombroso
+- lame- not cool, out of touch, or unfashionable
+- pristine- pure; clean; not dirty or spoiled
+- I got- when u receive from someone
+- Cowards- cobarde
+- Breed
