@@ -103,3 +103,10 @@
 - I got- when u receive from someone
 - Cowards- cobarde
 - Breed
+
+#### 30 nov 2020 (2)
+
+- Tipsy, humble, bizarre, fined, stingy, pompous,   hedging languages, spice up your life, take a rain check, sneezing, scrap, tenacious, persuade, refusal, manly, frugal, extravagant, silver tongue, chores, porridge, savory, mild, recipe, strikingly, fussy, stay-cation, stranded, tidy, slurp, munch, annoying, pet-peeves,  foreigner, embarrassed, library, drowsy, clutter, de-clutter, tidy, pant, squeeze in, fined, petty, congested, unusual, escalate.
+- Quit- dejar
+- Muscle
+- Call it out- Llámalo.
