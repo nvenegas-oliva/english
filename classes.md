@@ -110,3 +110,16 @@
 - Quit- dejar
 - Muscle
 - Call it out- Llámalo.
+
+
+#### 2 dic 2020
+
+- strikingly- sorprendentemente
+- people are
+- close to, near to, next to
+- What did you did?- What did you do?
+
+
+#### 4 dic 2020
+- Every other thursday.
+- 20th- Twentieth
