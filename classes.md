@@ -123,3 +123,10 @@
 #### 4 dic 2020
 - Every other thursday.
 - 20th- Twentieth
+
+
+#### 7 dic 2020
+
+-Ellipses-....
+-concise- consiso
+-obstacles- obstaculos.
