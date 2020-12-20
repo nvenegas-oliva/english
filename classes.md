@@ -121,12 +121,72 @@
 
 
 #### 4 dic 2020
+
 - Every other thursday.
 - 20th- Twentieth
 
 
 #### 7 dic 2020
 
--Ellipses-....
--concise- consiso
--obstacles- obstaculos.
+- Ellipses-....
+- concise- consiso
+- obstacles- obstaculos.
+
+#### 8 dic 2020
+
+- take care off- cuida de
+- appetite
+- You need to take care about...- wrong
+- You need to take care of...- correct
+
+
+#### 11 dic 2020
+
+- take care off- cuida de
+- appetite
+- You need to take care about...- wrong
+- You need to take care of...- correct
+
+#### 17 dic 2020
+
+- Accolade- galardón, espaldarazo.
+- give away- regalar
+- spill- derramar
+- ancient- antiguo
+- ramble- divagar, enredarse
+- talk your ear off- hablar por los codos
+
+
+#### 20 dic 2020
+
+- was just brewing- preparando
+- they taunted him- se burlaron de él
+- we took my big sister off
+- with this grief- dolor, duelo, aflicción.
+- the kidnappers- secuestradores
+- ransom- rescate
+- she tiptoed- se puso de puntillas
+- they were threatening to rape me- estaban amenazando con violarme
+- stiffly walked- caminaba rigidamente
+- was unfolding- se estaba desarrollando
+- quaint- pintoresco
+- slew- montón
+- I never gotten a message- Nunca recibí un mensaje
+- I sat there- me senté ahí.
+- mustered- reuní
+- he yelled across- gritó a través.
+- sob- sollozo
+- he met- me conoció
+- we hugged- nos abrazamos
+- clues- pistas
+- get so duped- ser tan engañado
+- robbing- robando
+- napkin- servilleta
+- went under- hundirse
+- I wonder- preguntarse, maravillarse, asombrarse.
+- awareness- conciencia.   
+- stove- estufa
+- throw- lanzar
+- unravel- desenmarañar
+- willing- dispuesto
+- lit you- te iluminó
